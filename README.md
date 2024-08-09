@@ -1,1 +1,1 @@
-I made this site for my girlfriend on Girlfriend's Day. Making this site allowed me to practice my web design skills. The gift wrap images were generated using Midjourney.
+I made this site for Girlfriend's Day 2024. Making this site allowed me to practice my web design skills. The gift wrap images were generated using Midjourney.
